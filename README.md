@@ -12,4 +12,4 @@ Here's what you should know:
 
 # Schedule
 
-TBD
+Every Wednesday from 12:00 EEST @ Krum Pashov's [discord server](https://discord.gg/H2gV9GA7)
